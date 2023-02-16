@@ -1,2 +1,0 @@
-# sexta-feira
-Sistema jf
